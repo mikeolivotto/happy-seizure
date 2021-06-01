@@ -1,6 +1,6 @@
 ---
 id: 1314
-title: 'Let&#8217;s not do that again &#8211; Inside Bizarro Korea.'
+title: 'Inside Bizarro Korea.'
 date: 2014-07-28T22:25:54+00:00
 author: happyseizure
 layout: post

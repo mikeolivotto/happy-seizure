@@ -1,6 +1,6 @@
 ---
 id: 1298
-title: 'Panskating Pyongyang &#8211; Skateboarding in North Korea'
+title: 'Skateboarding in North Korea (Panskating Pyongyang)'
 date: 2013-10-07T10:31:08+00:00
 author: happyseizure
 layout: post

@@ -1,6 +1,6 @@
 ---
 id: 1101
-title: Finally here
+title: Finally here in Kathmandu
 date: 2012-05-12T01:12:30+00:00
 author: happyseizure
 layout: post

@@ -1,6 +1,6 @@
 ---
 id: 1543
-title: New video of North Korea tour footage
+title: Video of North Korea tour footage
 date: 2016-01-15T18:17:09+00:00
 author: happyseizure
 layout: post
