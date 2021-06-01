@@ -15,6 +15,6 @@ Some of the more interesting posts on this site:
 
 ### Other stuff
 
-- Personal website - [Mike Olivotto](www.mikeolivotto.com)
+- Personal website - [Mike Olivotto](https://www.mikeolivotto.com)
 - [GitHub](https://github.com/mikeolivotto)
 
