@@ -50,3 +50,4 @@ On the day we departed DPRK it was time to offer the obligatory gratuities, so s
 <p style="text-align: center;">
   <a title="GOPR3053 by happyseizure, on Flickr" href="http://www.flickr.com/photos/104268996@N05/10132891993/"><img class="aligncenter" title="Pyongyang Skate Park" src="http://farm8.staticflickr.com/7361/10132891993_af92dc7e95.jpg" alt="Pyongyang Skate Park" width="500" height="375" /></a>
 </p>
+<iframe width="740" height="416" src="https://www.youtube.com/embed/ZxLhO_FNVBU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>

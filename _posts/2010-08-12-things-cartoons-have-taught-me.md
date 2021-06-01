@@ -34,7 +34,7 @@ Anyways, after checking in I headed for the Old Town, the original settlement ar
 
 Oh and the Spanish fail again. Here’s a history lesson for you; New Mexico was originally known as New Spain. Maybe the people of ‘New Spain’ didn’t want to be associated with the uhhh… c_lever_ folk who think a great name for a state would be ‘Colour Red’.
 
-Retarded souvenirs are everywhere, and Albuquerque is no exception. Who wouldn’t want a garden gnome Mexican guy with a cactus erection?
+Dumb souvenirs are everywhere, and Albuquerque is no exception. Who wouldn’t want a garden gnome Mexican guy with a cactus erection?
 
 <p style="text-align:center;">
   <a href="http://img.photobucket.com/albums/v236/mikezero/north%20america%202010%20and%20beyond/IMG_2346.jpg"><img class="aligncenter" title="erection" src="http://img.photobucket.com/albums/v236/mikezero/north%20america%202010%20and%20beyond/IMG_2346.jpg" alt="" width="480" height="360" /></a>
@@ -62,7 +62,7 @@ Went to the Museum of Natural History and Science to get my geek on and to gawk 
   </p>
 </div>
 
-And a bit of trivia for you all (except mum and dad who knew all too well how much of a retard kid I was), when I was real young I wanted oh so badly to become a palaeontologist. And if you don’t know what that is, it’s this guy:
+And a bit of trivia for you all (except mum and dad who knew all too well how much of a dumb kid I was), when I was real young I wanted oh so badly to become a palaeontologist. And if you don’t know what that is, it’s this guy:
 
 <div style="width: 490px" class="wp-caption aligncenter">
   <a href="http://img.photobucket.com/albums/v236/mikezero/north%20america%202010%20and%20beyond/IMG_2354.jpg"><img class=" " title="palaentologist" src="http://img.photobucket.com/albums/v236/mikezero/north%20america%202010%20and%20beyond/IMG_2354.jpg" alt="" width="480" height="360" /></a>
@@ -90,15 +90,7 @@ They also had an exhibit on space. Mostly all the usual stuff you expect, memora
   </p>
 </div>
 
-Oh and more dinosaur stuff.
 
-<div style="width: 490px" class="wp-caption aligncenter">
-  <a href="http://img.photobucket.com/albums/v236/mikezero/north%20america%202010%20and%20beyond/IMG_2366.jpg"><img title="fagasaurus" src="http://img.photobucket.com/albums/v236/mikezero/north%20america%202010%20and%20beyond/IMG_2366.jpg" alt="" width="480" height="360" /></a>
-  
-  <p class="wp-caption-text">
-    Fagasaurus. Of course, it couldn’t possibly be any other colour than pink and/or purple
-  </p>
-</div>
 
 <p style="text-align:center;">
   <p style="text-align:center;">

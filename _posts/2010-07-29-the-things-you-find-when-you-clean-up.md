@@ -9,15 +9,10 @@ permalink: /2010/07/the-things-you-find-when-you-clean-up/
 categories:
   - Miscellaneous
 ---
-<p style="text-align:center;">
-  12 or so pairs of shoes:<br /> <a href="http://img.photobucket.com/albums/v236/mikezero/IMG_2247.jpg"><img class="aligncenter" title="shoes" src="http://img.photobucket.com/albums/v236/mikezero/IMG_2247.jpg" alt="" width="480" height="360" /></a>
-</p>
 
-<p style="text-align:left;">
+
+<p style="text-align:center;">
   My first iPod. 40 Gigs. $545 &#8211; after using a friend&#8217;s staff discount:
-</p>
-
-<p style="text-align:center;">
   <a href="http://img.photobucket.com/albums/v236/mikezero/IMG_2246.jpg"><img class="aligncenter" title="iPod" src="http://img.photobucket.com/albums/v236/mikezero/IMG_2246.jpg" alt="" width="480" height="360" /></a>
 </p>
 

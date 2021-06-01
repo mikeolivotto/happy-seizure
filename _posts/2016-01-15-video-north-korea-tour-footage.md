@@ -18,10 +18,12 @@ tags:
   - Skateboarding
   - Tourist visit to North Korea
 ---
-I&#8217;ve recently spent some time putting together other previously unused footage from the trip.
+I've recently spent some time putting together other previously unused footage from the trip.
 
 My aim with this was to make it a bit more of an insight into the things we were taken to see and do, including some more mundane experiences our guides felt were worth showing off.
 
 
 
 You can also watch some other video of locals learning to skate (one even gave it a go in high heels!). Check that one out below:
+
+<iframe width="740" height="416" src="https://www.youtube.com/embed/uxUtvaOycd4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>

@@ -4,12 +4,17 @@ title: About
 permalink: /about/
 ---
 
-Some information about you!
+Hey, I'm Mike 👋. 
 
-### More Information
+I'm a web developer / digital marketer from Sydney, Australia. This blog is an outlet to talk about travels across the world, love for music, and whatever else I want to put out into the ether.
 
-A place to include any other types of information that you'd like to include about yourself.
+### Highlight posts
+Some of the more interesting posts on this site:
+- [DPRK photo essay](/2016/01/north-korea-dprk-photo-essay/)
 
-### Contact me
 
-[email@domain.com](mailto:email@domain.com)
+### Other stuff
+
+- Personal website - [Mike Olivotto](www.mikeolivotto.com)
+- [GitHub](https://github.com/mikeolivotto)
+

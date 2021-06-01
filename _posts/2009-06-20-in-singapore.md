@@ -12,8 +12,7 @@ tags:
   - Sentosa Island
   - Singapore
 ---
-_Finally got to a net cafe to upload some pics. You better enjoy them, took me forever to work it all out.  
-_ 
+Finally got to a net cafe to upload some pics. You better enjoy them, took me forever to work it all out.  
 
 Yesterday woke up at stupid-o&#8217;clock to be at the airport for a 6am check-in. Mum was pretty funny, she seemed pretty upset that I was going and I only just found out that she had no idea I was gone for 2 months till about a week ago. Oops.
 

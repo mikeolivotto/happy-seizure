@@ -18,8 +18,6 @@ tags:
   - Set Your Goals
   - Tower of London
 ---
-Everything is peachy at the moment. It rules. I rule. True story!
-
 Damien rocked up on Monday afternoon and man was it great to catch up with him again. It’s been about a month and a half since I’ve seen him since he’s been travelling all over the place.
 
 We quickly made our way out into the city and went straight to the Tower of London. This place was so awesome I wanted to shoot myself in the face. [With a crossbow](http://img.photobucket.com/albums/v236/mikezero/europe%202010/IMG_1901.jpg). Don’t get me wrong, castles are pretty badass with their cache of swords, [canons](http://img.photobucket.com/albums/v236/mikezero/europe%202010/IMG_1903.jpg), crossbows and castle-y kind of things… But a line that takes about 50 mins to see some ridiculously expensive jewellery, plates and other assorted useless royal artefacts is not so badass.

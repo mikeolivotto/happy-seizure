@@ -9,7 +9,7 @@ permalink: /2010/12/missing-my-girls-back-home/
 categories:
   - Miscellaneous
 ---
-&#8230;so I went out and got myself a new one to play with:
+&#8230;so I went out and got myself a new one:
 
 <p style="text-align:center;">
   <a href="http://img.photobucket.com/albums/v236/mikezero/north%20america%202010%20and%20beyond/Photoon2010-12-22at1629.jpg"><img class="aligncenter" title="Squier Strat" src="http://img.photobucket.com/albums/v236/mikezero/north%20america%202010%20and%20beyond/Photoon2010-12-22at1629.jpg" alt="" width="384" height="288" /></a>

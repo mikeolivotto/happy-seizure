@@ -24,11 +24,10 @@ I&#8217;ve been meaning to do this for a couple weeks now since I never did real
 
 So I left off talking about the Blink 182 show in Milwaukee and 10 for $10 Tour. Here&#8217;s some pictures for you to have a bit of a geeze at:
 
-<p style="text-align:center;">
-  <strong></p> 
+<p style="text-align:center;"></p> 
   
   <div style="width: 421px" class="wp-caption aligncenter">
-    <strong><a href="http://img.photobucket.com/albums/v236/mikezero/america/IMG_1534.jpg"><img class=" " title="Fall Out Boy" src="http://img.photobucket.com/albums/v236/mikezero/america/IMG_1534.jpg" alt="Fall Out Boy" width="411" height="308" /></a></strong>
+    <a href="http://img.photobucket.com/albums/v236/mikezero/america/IMG_1534.jpg"><img class=" " title="Fall Out Boy" src="http://img.photobucket.com/albums/v236/mikezero/america/IMG_1534.jpg" alt="Fall Out Boy" width="411" height="308" /></a></strong>
     
     <p class="wp-caption-text">
       Fall Out Boy
@@ -51,9 +50,6 @@ So I left off talking about the Blink 182 show in Milwaukee and 10 for $10 Tour.
     </p>
   </div>
   
-  <p>
-    </strong><strong><br /> </strong>
-  </p>
   
   <p>
     After 10 for $10 I back-tracked my way to Chicago, taking about 5 or 6 hours to complete what is normally only a 2.5 hour trip. It was nice, I stopped off a few times along the way, even went to one of Michigan&#8217;s state parks to go for a swim in Lake Michigan. Beautiful day, great weather and the water was a great temperature. Driving into Chicago was a bit of a pain, the traffic there is insane.

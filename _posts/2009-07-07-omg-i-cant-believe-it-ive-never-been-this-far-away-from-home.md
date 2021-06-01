@@ -74,7 +74,7 @@ Ok, so here&#8217;s a few more photos:
 [The gang (Me, Ash, Drew)](http://img.photobucket.com/albums/v236/mikezero/post%20glasto%20and%20werchter/IMG_0583.jpg)  
 [The most awesome tomato I&#8217;ve ever eaten. Breakfast after our grocery shopping expedition.](http://img.photobucket.com/albums/v236/mikezero/post%20glasto%20and%20werchter/IMG_0601.jpg)  
 [T-shirt tan](http://img.photobucket.com/albums/v236/mikezero/post%20glasto%20and%20werchter/IMG_0602.jpg)  
-[Cocktails and pooftercakes (this one&#8217;s for you Simon!)&#8230; Poffertjes or whatever they&#8217;re called](http://img.photobucket.com/albums/v236/mikezero/post%20glasto%20and%20werchter/IMG_0604.jpg)  
+[Cocktails and Poffertjes or whatever they&#8217;re called](http://img.photobucket.com/albums/v236/mikezero/post%20glasto%20and%20werchter/IMG_0604.jpg)  
 [Sweaty shirtless Limp Bizkit fan with some beverages](http://img.photobucket.com/albums/v236/mikezero/post%20glasto%20and%20werchter/IMG_0655.jpg)  
 [3D-glasses power ranger](http://img.photobucket.com/albums/v236/mikezero/post%20glasto%20and%20werchter/IMG_0686.jpg)  
 [The gang posing](http://img.photobucket.com/albums/v236/mikezero/post%20glasto%20and%20werchter/IMG_0695.jpg)  
